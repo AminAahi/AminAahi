@@ -33,5 +33,5 @@ I am passionate about enabling businesses—whether established corporations or 
 ## 🌍 Let’s Connect
 If you’re looking for **business consulting, investment opportunities, or strategic growth guidance**, let’s connect and explore how we can collaborate for success.
 
-📩 **Email:** [Your Email Here]  
-🔗 **LinkedIn:** [Your LinkedIn Profile Here]
+📩 **Email:** [aahi.amin@gmail.com]  
+🔗 **LinkedIn:** [Contact me in LinkedIn](https://www.linkedin.com/in/m-ahi/)
